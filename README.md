@@ -1,3 +1,3 @@
-# benjaminbutler.com
+# benjaminbutlerjr.com
 My personal website
-Visit @ https://benjaminbutler.com
+Visit @ https://benjaminbutlerjr.com
